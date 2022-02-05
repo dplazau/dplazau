@@ -1,3 +1,3 @@
 # DIEGO PLAZA'S GITHUB
 
-### LinkedIn
+### [LinkedIn](https://www.linkedin.com/in/dplazaurrutia/)
